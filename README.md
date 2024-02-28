@@ -26,4 +26,4 @@ For inquiries or further discussion about the SQL files or my experiences at CCH
 
 Raymart Sarmiento<br />
 raymart.sarmiento23@outlook.com<br />
-[www.linkedin.com/in/raymart-sarmiento-lob](https://www.linkedin.com/in/raymart-sarmiento-lob)
+[My Linked In Account](https://www.linkedin.com/in/raymart-sarmiento-lob)
