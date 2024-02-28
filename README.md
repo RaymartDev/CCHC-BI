@@ -24,6 +24,6 @@ Feel free to explore the SQL files to gain an understanding of my capabilities i
 
 For inquiries or further discussion about the SQL files or my experiences at CCHC, please don't hesitate to reach out.
 
-Raymart Sarmiento
-raymart.sarmiento23@outlook.com
+[Raymart Sarmiento]
+[raymart.sarmiento23@outlook.com]
 [www.linkedin.com/in/raymart-sarmiento-lob](https://www.linkedin.com/in/raymart-sarmiento-lob)
